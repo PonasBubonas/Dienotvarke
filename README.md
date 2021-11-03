@@ -1,2 +1,1 @@
-# SususAmogus
-Apsimetėlis įtartinas?
+Apsimetėlių čia nėra :C
